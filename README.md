@@ -1,5 +1,7 @@
 # kelly-clarkson-weight-loss-
 
+<img src="https://github.com/Dominic28wother/kelly-clarkson-weight-loss-/blob/main/ke.jpg"/>
+
 Kelly Clarkson has long been candid about her weight loss journey and the impact it’s had on her life.
 
 The singer and talk show host has shared the strategies she’s turned to and opened up about the health issues that have impacted her progress.
@@ -20,4 +22,4 @@ Kelly Clarkson, the beloved Texas-born singer and first-ever American Idol winne
 
 Throughout this journey, she maintained a focus on health over aesthetics, proving that true wellness goes beyond just a number on the scale. Her story has become a beacon of inspiration for many struggling with similar health challenges.
 
-Kelly Clarkson has come a long way to achieve success and the main thing is that she gave primary importance to her health. It is known that Kelly Clarkson used many methods of losing weight. Some sources suggest that she used a special program for a PC, which offers an individual diet without physical activity. For more information about this program, [FOLLOW THE LINK](https://bit.ly/3Uqpg4m)
+***Kelly Clarkson has come a long way to achieve success and the main thing is that she gave primary importance to her health. It is known that Kelly Clarkson used many methods of losing weight. Some sources suggest that she used a special program for a PC, which offers an individual diet without physical activity. For more information about this program, [FOLLOW THE LINK](https://bit.ly/3Uqpg4m)***
